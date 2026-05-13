@@ -1,4 +1,4 @@
-#  
+#  Experience spin a soccer card like never before with no-ban spin a soccer card Scripts, the #1 Script. Includes anti-ban and instant win for
 
 
 
